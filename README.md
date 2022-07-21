@@ -8,7 +8,7 @@
 
 - 📫 How to reach me <b>brotherofmane@gmail.com</b><br>
 
-- 📄 Know about my experiences and resume <a href="https://drive.google.com/file/d/1AsRFJ76hkGS3tDggQWi6oSysXfTQzweX/view?usp=sharing"> Click here </a>
+- 📄 Know about my experiences and resume <a href="https://drive.google.com/file/d/1Reo7GZLviPQ_y1x2BrwC-Lq1xebXhPeo/view?usp=sharing"> Click here </a>
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
